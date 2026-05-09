@@ -160,6 +160,5 @@ With hands-on experience in **quality control, operations, and administrative ma
 
 *Open to opportunities in UAE logistics, supply chain, and procurement — let's connect!*
 
-[![](https://komarev.com/ghpvc/?username=Venarose&color=e94560&style=flat-square&label=Profile+Views)](https://visitcount.itsvg.in)
 
 </div>
