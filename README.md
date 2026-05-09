@@ -12,11 +12,9 @@ Logistics and Procurement | Operations Management | Master of Global Business in
 
 ---
 
-## 🌏 About Me
-
 > *"Engineering precision meets global logistics — bridging science and supply chains across borders."*
 
-I'm **Venarose Bakidan**, a licensed **Chemical Engineer** from the Philippines 🇵🇭 recently completed my **Master of Global Business in Logistics & Supply Chain Management** at **SP Jain School of Global Management** (Dubai | Mumbai | Singapore | Sydney).
+Hi, I'm **Venarose Bakidan**, a licensed **Chemical Engineer** from the Philippines 🇵🇭 recently completed my **Master of Global Business in Logistics & Supply Chain Management** at **SP Jain School of Global Management** (Dubai | Mumbai | Singapore | Sydney).
 
 With hands-on experience in **quality control, operations, and administrative management**, I bring analytical thinking and process-driven solutions to the world of international logistics and procurement.
 
